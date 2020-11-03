@@ -1,0 +1,2 @@
+The recipe of this chocolate cake is very easy and can be made with home ingredients.
+First you have to mix all dry igredients and all wet ingredients seperately then you have to mix them altogethor to make the cake dough then you just have to bake the dough to 180C FOR 40-45 MINUTES 

@@ -1,0 +1,10 @@
+Cocoa Powder= 1/4 cup(unsweetened)
+All Purpose Flour= 1+1/4 cup
+Powdered Sugar= 1 cup
+Baking Soda= 1 teaspoon
+Salt= 1/2 teaspoon
+Warm Water= 1 cup
+Instant Coffee Powder= 1/2 teaspoon
+Vanilla Essence= 1 teaspoon
+Oil= 1/3 cup(unflavoured)
+Vinegar= 1 teaspoon
